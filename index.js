@@ -1,10 +1,10 @@
 /*
-Base Ori : Lexxy Official
+Base Ori : TzyDin
 Kalo Mau Recode Di Folder recode Di files ind.js
 
 Mau Beli Yang No Enc? 
-Wa.me/6282279915237
-Wa.me/6285789004732
+Wa.me/6285798328466
+Wa.me/625950471442
 
 Harga : 15k-30k
 */
